@@ -72,7 +72,8 @@ Now the third and most dangerous male is the one who neither has any journey nor
 
 In the movie Fight Club, you also saw when Bob dies becomes a hero similarly if a person of a particular organization does a very big mission becomes a hero. One motivation behind young people becoming suicide bombing is that the person is living his Hero’s Journey
 
-Now killing of innocent life is unforgivable, no matter what the story was behind it but these young people choosing such paths show us that we need to think about this very carefully. There are many dire flaws in the current systems. And understanding the problem of males is very important for us because there are not many people who think and talk about their issues which can be displayed through the countless production of films portraying the existential struggles of women.
+Now killing of innocent life is unforgivable, no matter what the story was behind it but these young people choosing such paths shows us that we need to think about this very carefully. There are many dire flaws in the current systems. And understanding the problem of males is very important for us because there are not many people who think and talk about their issues which can be displayed through the countless production of films portraying the existential struggles of women.
 
+## Conclusion
 And I will end this blog with problems only because I can’t see any easy or simple answer but before even solving them, we have to acknowledge them. Because people mostly just ignore them as toxic masculinity when they are just toxic byproducts of mishandling masculinity.
 
