@@ -1,6 +1,6 @@
 ---
 title: WHAT IS TOXIC MASCULINITY | THE REALITY BEHIND IT OR IS IT JUST BS
-description: What is toxic masculinity
+description: What is toxic masculinity, lets dive into it
 date: 2024-05-16T23:16:08+05:00
 image: tm.jpg
 categories:
