@@ -27,7 +27,9 @@ Let’s start with the story of Elliot Roger. Who decides to release a manifesto
 
 {{< video src="https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707" >}}
 
+{{< video src="https://nyti.ms/3DROZdw" >}}
 
+{{< video "https://nyti.ms/3DROZdw" >}}
 
 That same evening, he kills his three roommates with a knife, and after that proceeds to the women’s hostel at the University of California. After knocking when no one opens in a fit of rage he shoots and kills two girls passing by. Then drives off in a car and on the way shoots a woman on a bike and runs his car on a skateboarder and kills him too. After that stops at a supermarket and starts shooting. He even kills a cop and then kills himself with the same gun.
 
