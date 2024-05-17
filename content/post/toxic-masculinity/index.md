@@ -25,9 +25,9 @@ Let’s start with the story of Elliot Roger. Who decides to release a manifesto
 
 {{< video src="<iframe title="New York Times Video - Embed Player" width="480" height="321" frameborder="0" scrolling="no" allowfullscreen="true" marginheight="0" marginwidth="0" id="nyt_video_player" src="https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707"></iframe>" >}}
 
-{{< video https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707 >}}
+{{< video "https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707" >}}
 
-{{< video src"https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707" >}}
+{{< video src="https://www.nytimes.com/video/players/offsite/index.html?videoId=100000002900707" >}}
 
 
 
