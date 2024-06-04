@@ -65,7 +65,6 @@ Similarly, countless corrupt scholars among the Muslim Ummah today are living th
 If this were not the case, they would neither be in a state of misery and inaction themselves nor would they leave the Ummah free to this state of misery and inaction. Instead, they would be leading the society in "the actual tasks to be done" rather than engaging in the formality of holding a Palestine Conference in the Convention Centre Islamabad. They would themselves come forward and set an example by engaging in the field based on Islamic and hereafter priorities, and they would be seen grooming the minds of the Ummah on the pulpit of the Prophet (PBUH) and other occasions on the basis of "not fearing the blame of any blamer" (Quran, Surah Al-Ma'idah, Ayah 54). They would be able to show the system of social justice of Islam not only to the responsive Ummah but also to the invited Ummah.
 
 ## Conclusion
-Here is the English translation of the given Urdu text:
 But the thought-provoking moment is that the freshness of thought and action that the elite and the masses of the Ummah are showing on the "oppression on Gaza and Palestine," why do they not see the violation of the definitive text, "Indeed, the rule is for none but Allah" (Quran 12:40)?
 
 
