@@ -15,14 +15,14 @@ I have been old enough to vote for sometime now, but have never voted. The elect
 
 So i have tried to stay away from conversations related to politics no matter if they were in the tv lounge or between freinds at some tea shop. But currently i have started taking a interest in politcs because i have realized that it is not just a very important skill but might be crucial that could shape the outcome of your life.
 
-Just like oxygen politics is everywhere and practiced by everyone, be it a baby who just learned to walk, or individuals whose  displeasure can change the geopraphy of the world. 
+Just like oxygen, politics is everywhere and practiced by everyone, be it a baby who just learned to walk, or individuals whose  displeasure can change the geopraphy of the world. 
 
-But i digress, lets get back to the topic of voting. Long story short, politics take morality and ethics as foundational elements upon which it is built. And i base my political thought is based upon the Islamic belief of Oneness of God, Allah., which is the most key principle and everything that follows.
+But i digress, lets get back to the topic of voting. Long story short, politics take morality and ethics as foundational elements upon which it is built. And i base my political thought the Islamic belief of Oneness of God, Allah.Which is the most key principle.
 
-Then considering that, let me take you through how i now look at voting, i knew that voting in Pakistan was like banging your head against the wall and also seemed wrong ISLAMICALLY but could not put my fingers areound it. But recently as i have actively focused on attaining some benifical knowledge of Quran and Hadees, i have found words and arguments that have helped me give a new perspective.
+Then considering that, let me take you through how i now look at voting, i knew that voting in Pakistan was like banging your head against the wall and also seemed wrong ISLAMICALLY but could not put my head around it. But recently as i have actively focused on attaining some benifical knowledge of Quran and Hadees, i have found words and arguments that have helped me give a new perspective.
 
 ## WHO GETS TO LEGISLATE
-Who gets to lesgislate, make rules, and why do we need to follow them, lets start with the why, because we humen beings when are social creatures and tend to prosper when we are in a group or tribes. And when you are a part of society, for the society to act as a whole and move in the diection of prosperity not destruction it needs to follow some rules and everyone, must act upon them. 
+Who gets to lesgislate, make rules, and why do we need to follow them, lets start with the Why, because we humen beings are social creatures and tend to prosper when we are in a group or tribes. And when you are a part of society, for the society to act as a whole and move in the diection of prosperity not destruction it needs to follow some rules and everyone, must act upon them. 
 
 But who gets to make them, who do we give this kind of power to decide the future of, in this case a country or even the world, since we are living in a Global Village. I personally think no human is intelligent or selfless enough, to be given this power of legislation, and if your answer was democracy. Then, i dont believe true democracy exists anywhere. Secondly, potential vulnerability of democratic systems to what is sometimes called the "tyranny of the majority".
 
